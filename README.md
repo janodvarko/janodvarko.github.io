@@ -1,1 +1,0 @@
-# janodvarko.github.io
